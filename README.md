@@ -22,7 +22,7 @@ leverage my technical expertise and problem-solving skills to
 
 drive innovative solutions.
 
-* 🌍  I'm based in Mashhad
+* 🌍  I'm based in Iran, Mashhad
 * 🖥️  See my portfolio at [SeaDraem](http://seadreamcom)
 * ✉️  You can contact me at [dreamingkayu@gmail.com](mailto:dreamingkayu@gmail.com)
 * 🚀  I'm currently working on [SeaMallory's WebPage!](http://seamallory.com)
